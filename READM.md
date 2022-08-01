@@ -1,1 +1,1 @@
-I am a good girl
+I am a good student
